@@ -8,4 +8,5 @@
 
 > `»` Fuck Hcaptcha!
 
-# Enjoy SkiddinG!
+> Terminal is Cute <3,Enjoy SkiddinG!
+
