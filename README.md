@@ -8,4 +8,4 @@
 
 > `»` Fuck Hcaptcha!
 
-#Enjoy SkiddinG!
+# Enjoy SkiddinG!
